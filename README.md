@@ -8,7 +8,7 @@ https://ibb.co/D7Gbw21
 
 # Добавялем контакт
 
-https://ibb.co/zr05ZmD
+https://ibb.co/5vK1d03
 
 # Удаляем контакт
 
